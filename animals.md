@@ -12,7 +12,7 @@ These are the best!
 - Polar
 - Teddy
 
-## Other amazing animals
+## Other amazing "Mammals"
 
 - Koala
 - Panda
